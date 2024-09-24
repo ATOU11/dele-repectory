@@ -1,1 +1,1 @@
-# dele-repectory
+# delevery-repectory
